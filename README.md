@@ -1,0 +1,2 @@
+# startnow
+for base guild!
